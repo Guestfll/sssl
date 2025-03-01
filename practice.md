@@ -9,6 +9,5 @@
 ![](https://github.com/Guestfll/sssl/blob/main/Pasted%20image%2020250301231542.png)
 ![](https://github.com/Guestfll/sssl/blob/main/Pasted%20image%2020250301232325.png)
 ![](https://github.com/Guestfll/sssl/blob/main/Pasted%20image%2020250302001151.png)
-![](https://github.com/Guestfll/sssl/blob/main/Pasted%20image%2020250301231542.png)
 ![](https://github.com/Guestfll/sssl/blob/main/Pasted%20image%2020250302001417.png)
 ![](https://github.com/Guestfll/sssl/blob/main/Pasted%20image%2020250302004336.png)
