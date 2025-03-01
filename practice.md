@@ -3,7 +3,6 @@
 ![](https://github.com/Guestfll/sssl/blob/main/Pasted%20image%2020250301231258.png)
 ![](https://github.com/Guestfll/sssl/blob/main/Pasted%20image%2020250301231315.png)
 ![](https://github.com/Guestfll/sssl/blob/main/Pasted%20image%2020250301222622.png)
-![](https://github.com/Guestfll/sssl/blob/main/Pasted%20image%2020250301225523.png)
 ![](https://github.com/Guestfll/sssl/blob/main/Pasted%20image%2020250301222157.png)
 ![](https://github.com/Guestfll/sssl/blob/main/Pasted%20image%2020250301222439.png)
 ![](https://github.com/Guestfll/sssl/blob/main/Pasted%20image%2020250301223401.png)
